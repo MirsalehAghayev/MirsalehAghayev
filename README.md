@@ -4,8 +4,10 @@
 - 🌱 I’m currently learning everything 🤣  
   
 
-- ⚡ Fun fact: I love guns and swimming :)  
-  
+- ⚡ Fun fact: I love guns and swimming :) 
+
+
+                          There are so many things to love about coding, both from a technical and philosophical perspective. 
 
 
 <br/>
